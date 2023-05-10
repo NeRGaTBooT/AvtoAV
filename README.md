@@ -1,1 +1,1 @@
-https://NeRGaTBooT.github.io/AvtoBy/index.html/
+https://nergatboot.github.io/AvtoAV/
