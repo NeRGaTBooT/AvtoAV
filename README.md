@@ -1,1 +1,1 @@
-https://NeRGaTBooT.github.io/AvtoBy/
+https://NeRGaTBooT.github.io/AvtoBy/index.html/
